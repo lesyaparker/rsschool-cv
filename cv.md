@@ -27,7 +27,6 @@ I am a media professional with a bilingual upbringing and a strong understanding
 * Russian (Native)
 * English (Fluent)
 * French (Intermediate)
-* Arabic (Beginner)
 
 
 
